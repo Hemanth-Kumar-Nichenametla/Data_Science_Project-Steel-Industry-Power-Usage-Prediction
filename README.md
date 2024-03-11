@@ -15,3 +15,19 @@ This is a group project during my master's program. I have collaborated with thr
 ![Alt text](<Imp_images/Screenshot 2024-03-10 at 6.56.42 PM.png>)
 
 ![Alt text](<Imp_images/Screenshot 2024-03-10 at 6.56.51 PM.png>)
+
+![Alt text](<Imp_images/Part_2_ppt/Screenshot 2024-03-10 at 7.10.34 PM.png>)
+
+![Alt text](<Imp_images/Part_2_ppt/Screenshot 2024-03-10 at 7.10.43 PM.png>)
+
+![Alt text](<Imp_images/Part_2_ppt/Screenshot 2024-03-10 at 7.10.51 PM.png>)
+
+![Alt text](<Imp_images/Part_2_ppt/Screenshot 2024-03-10 at 7.11.00 PM.png>)
+
+![Alt text](<Imp_images/Part_2_ppt/Screenshot 2024-03-10 at 7.11.08 PM.png>)
+
+![Alt text](<Imp_images/Part_2_ppt/Screenshot 2024-03-10 at 7.11.17 PM.png>)
+
+![Alt text](<Imp_images/Part_2_ppt/Screenshot 2024-03-10 at 7.11.26 PM.png>)
+
+![Alt text](<Imp_images/Part_2_ppt/Screenshot 2024-03-10 at 7.11.35 PM.png>)
